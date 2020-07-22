@@ -1,1 +1,0 @@
-# tech2period3exam
